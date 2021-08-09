@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @cheruh
+- 👀 I’m interested in anything of concern and interested
+- 🌱 I’m currently learning psychology and human behaviour.
+- 💞️ I’m looking to collaborate on book clubs and programming projects.
+- 📫 Reach me on cheruhjoseh@gmail.com
